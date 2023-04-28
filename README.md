@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m Just a Beginner for Now..
 - 📫 How to reach me -
-aviral.kumar00
+ Instagram- @aviral.kumar00
 aviralkumaraiswal321@gmail.com
 
 <!---
